@@ -6,4 +6,4 @@ Projeto Sorteio da Sorte,
   🚀🚀🚀🚀🚀
 
 
-  Estou muito feliz em poder criar projetos com a DevClub, Transição de careirra.
+  Estou muito feliz em poder criar projetos com a DevClub, Transição de carreira.
